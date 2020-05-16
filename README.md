@@ -1,0 +1,2 @@
+# Historia-Colaborativa-
+Observar en: https://puceeduec-my.sharepoint.com/personal/cxbarrigaa_puce_edu_ec/_layouts/15/onedrive.aspx?originalPath=aHR0cHM6Ly9wdWNlZWR1ZWMtbXkuc2hhcmVwb2ludC5jb20vOmY6L2cvcGVyc29uYWwvY3hiYXJyaWdhYV9wdWNlX2VkdV9lYy9FamdsZHU5UEliSklvZC16eG9NcjBMOEJMeGRJd0dBVEYtWF8xdGJjWGVXQkZBP3J0aW1lPUZSVnpZV1A1MTBn&amp;id=%2Fpersonal%2Fcxbarrigaa%5Fpuce%5Fedu%5Fec%2FDocuments%2Fclases%20online%2Fm4%2Frecursos%2FL5
